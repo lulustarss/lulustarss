@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Lulo!! 🩷
+- 👀 I’m interested in drawing and learning new languages :)
+- 🌱 I’m currently learning English!
+- 😄 Pronouns: she/her
